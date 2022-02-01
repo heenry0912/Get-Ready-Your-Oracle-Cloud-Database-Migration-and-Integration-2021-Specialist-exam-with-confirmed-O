@@ -1,0 +1,1 @@
+# Get-Ready-Your-Oracle-Cloud-Database-Migration-and-Integration-2021-Specialist-exam-with-confirmed-O
